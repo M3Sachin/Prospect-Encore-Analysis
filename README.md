@@ -1,0 +1,2 @@
+# Prospect-Encore-Analysis
+Prospect!Analytics!is!a!new!field!of!sales!and!marketing!software!designed!to!help! companies!achieve!their!single!most!important!goal:!to!sell!more,!and!to!sell!more! profitably.!It!does!this!by!tracking!and!analysing!interactions!between!the!company!and!its! prospects,!both!online!and!off.!The!information!and!analysis!that!Prospect!Analytics! solutions!provide!can!then!be!used!to!retrospectively!measure!sales!and!marketing!success,! or!more!excitingly!to!change!future!behaviour!to!convert!prospects!more!efficiently!and! effectively.!
